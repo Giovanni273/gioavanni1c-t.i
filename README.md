@@ -1,1 +1,2 @@
-# gioavanni1c-t.i
+# card
+abra no pc
